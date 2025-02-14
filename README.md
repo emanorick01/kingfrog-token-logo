@@ -1,0 +1,1 @@
+# kingfrog-token-logo
